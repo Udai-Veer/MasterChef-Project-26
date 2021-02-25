@@ -5,7 +5,7 @@ HOT CHOCOLATE
 
 INGREDIENTS
 1/4 teaspoon	vanilla extract
-2 to 3 teaspoons	HERSHEY'S Cocoa
+2 to 3 teaspoons cocoa powder
 2 tablespoons	sugar
 1 cup	milk
 salt
